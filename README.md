@@ -1,1 +1,1 @@
-# aguarda-de-davi-socra
+Sociedade Secreta Oculta Cristã
