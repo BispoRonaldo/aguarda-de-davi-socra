@@ -1,2 +1,2 @@
 Sociedade Secreta Oculta Cristã
-       S.S.O.C
+           S.S.O.C
